@@ -1,5 +1,5 @@
 # 💫 About Me:
-Soy un joven de 23 años que estudia Ingeniería de Sistemas y está actualmente en un curso de Oracle de Front End. Me apasiona el <br>desarrollo web y el deporte, y en particular, soy un ávido jugador de baloncesto. Además, tengo habilidades comunicativas excelentes <br>y sé trabajar bien en equipo. Aunque mi nivel de inglés es básico, <br>estoy trabajando para mejorarlo constantemente. En resumen, soy un estudiante comprometido y dedicado que está interesado en el <br>desarrollo de software y el deporte, y estoy siempre dispuesto a colaborar con los demás.<br>🤓🏀🏃‍♂🎮💻🖥💾
+Soy un joven de 23 años que estudia Ingeniería de Sistemas y está actualmente en un curso de Oracle de Front End. Me apasiona el <br>desarrollo web y el deporte, y en particular, soy un ávido jugador de baloncesto. Además, tengo habilidades comunicativas excelentes <br>y sé trabajar bien en equipo. Aunque mi nivel de inglés es básico, estoy trabajando para mejorarlo constantemente. En resumen, soy un estudiante comprometido y dedicado que está interesado en el <br>desarrollo de software y el deporte, y estoy siempre dispuesto a colaborar con los demás.<br>🤓🏀🏃‍♂🎮💻🖥💾
 
 
 ## 🌐 Socials:
